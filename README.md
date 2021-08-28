@@ -1,2 +1,2 @@
 ### welcom to my email spammer 
--use this spammer 
+- using the spammer is so much easy
